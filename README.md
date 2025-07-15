@@ -1,2 +1,2 @@
-# Lista05-POO
-Para Gilbert
+# Lista05
+JOÃO PEDRO PARA DE SER CHATO CARA
